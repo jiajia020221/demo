@@ -14,4 +14,4 @@
 
 ![](https://github.com/Forairaaaaa/Chappie-II/blob/main/Pics/captrue3.png?raw=true)
 
-![](https://github.com/Forairaaaaa/Chappie-II/blob/main/Pics/captrue4.png?raw=true)
+![](https://github.com/Forairaaaaa/Chappie-II/blob/main/Pics/captrue4.png?raw=true)这是学习用的
